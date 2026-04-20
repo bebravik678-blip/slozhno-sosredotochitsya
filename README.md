@@ -1,1 +1,1 @@
-https://github.com/bebravik678-blip/slozhno-sosredotochitsya
+https://github.com/bebravik678-blip/slozhno-sosredotochitsya-ad
